@@ -1,1 +1,1 @@
-Hi..
+This is my lab, where everything is peaceful, efficient, and the thermostat is controlled entirely by me. Someday, I hope to make the whole world like this. Efficient that is, not controlled entirely by me. That would be totally egomaniacal. I would never do that.
